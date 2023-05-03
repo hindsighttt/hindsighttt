@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @hindsighttt
+- 👀 I’m interested in music and sound design aswell as computer science
+- 🌱 I’m currently learning python and cpp
+- 💞️ I’m looking to collaborate on any project
+- 📫 You can hit me up on instagram @hinds1ghttt
